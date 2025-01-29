@@ -2,9 +2,9 @@
 
 The Adobe Photoshop family of products is the ultimate playground for bringing out the best in your digital images, transforming them into anything you can imagine, and showcasing them in extraordinary ways. The software - Take advantage of powerful new photography tools and breakthrough capabilities for superior image selections, image retouching, realistic painting, and a wide range of workflow and performance enhancements.
 
-# [🚀✔✔ ➤➤  Adobe Photoshop CC Crack]up-community.link/dl/)
+# 🚀✔✔ ➤➤  https://up-community.link/dl/
 
-# [🚀✔✔ ➤➤  Adobe Photoshop CC](up-community.link/dl/)
+# 🚀✔✔ ➤➤ https://up-community.link/dl/
 
 # Pattern Preview
 
